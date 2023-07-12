@@ -1,1 +1,0 @@
-Mike's an awesome teacher.
